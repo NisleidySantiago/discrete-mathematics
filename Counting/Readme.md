@@ -1,0 +1,7 @@
+![Matematicas Discretas 023](https://user-images.githubusercontent.com/36342673/130540303-092f9835-9ebf-4148-ae07-b3fea4760fc6.jpg)
+![Matematicas Discretas 024](https://user-images.githubusercontent.com/36342673/130540309-6cd2af1b-8231-4e97-b54c-1a5803e2c1b9.jpg)
+![Matematicas Discretas 025](https://user-images.githubusercontent.com/36342673/130540214-4ef4b41e-1a98-4260-839f-fa934c9df8dc.jpg)
+![Matematicas Discretas 026](https://user-images.githubusercontent.com/36342673/130540229-2927c04c-483a-4ac7-8ca2-d5785200981c.jpg)
+![Matematicas Discretas 027](https://user-images.githubusercontent.com/36342673/130540264-e90dee2c-1862-4e31-a199-c64e9deedb8e.jpg)
+![Matematicas Discretas 028](https://user-images.githubusercontent.com/36342673/130540278-3a9fb825-a452-4850-b87c-f347239d40e3.jpg)
+![Matematicas Discretas 029](https://user-images.githubusercontent.com/36342673/130540291-6bb6f18c-94dc-4aaa-affe-e00fde0f5369.jpg)
